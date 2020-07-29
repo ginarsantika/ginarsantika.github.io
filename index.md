@@ -1,6 +1,8 @@
 ### Ginar Santika Niwanputri
 
-### Community Development Supporter. Education Aficionado. Technology Enthusiast.
+### Community Development Supporter
+### Education Aficionado
+### Technology Enthusiast
 
 Never stop falling in love with Bandung.
 
