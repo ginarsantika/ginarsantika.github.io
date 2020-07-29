@@ -15,4 +15,4 @@ Really blessed to be a part of the great Indonesia Mengajar.
 Sport Lover. Analysis Freak. Food Maniac.
 
 
-www.ginarsantika.com
+https://www.ginarsantika.com
