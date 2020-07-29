@@ -1,5 +1,3 @@
-### Ginar Santika Niwanputri
-
 ### Community Development Supporter
 ### Education Aficionado
 ### Technology Enthusiast
