@@ -13,3 +13,7 @@ Former employee of one Indonesia’s leading integrated energy company.
 Really blessed to be a part of the great Indonesia Mengajar.
 
 Sport Lover. Analysis Freak. Food Maniac.
+
+https://www.linkedin.com/in/ginarsantika/
+https://www.researchgate.net/profile/Ginar_Niwanputri
+http://ginarsantika.com/
